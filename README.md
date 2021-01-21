@@ -1,1 +1,2 @@
-# sssssssssssss
+**BU ALTYAPI TAMAMEN ROLLY CODEYE AİTTİR**
+**BUMBEYARRA!**
